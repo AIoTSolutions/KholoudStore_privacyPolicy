@@ -1,0 +1,1 @@
+# KholoudStore_privacyPolicy
